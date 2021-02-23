@@ -12,4 +12,4 @@
 
 ### Parcour
 
-* Mon parcour et très long, j'ai beaucoup voyager et enchainer les taffs à droite et à gauche. J'ai commencé par un très ennuyeux BTS assurance à la Défense, puis j'ai enchainé... Serveur à Malte, téléopérateur à Barcelone, chaufffeur Uber à Paris, vendeur d'aspirateur en Haute Savoie, Epicier à Houat... Ma vie c'est "Attrappe moi si tu peux" avec des taff pas ouf mdr ^^' J'espère donc pouvoir combiner ma passion du voyage avec le code style digital nomad inshallah !
+* Mon parcour et très long, j'ai beaucoup voyager et enchainer les taffs à droite et à gauche. J'ai commencé par un très ennuyeux BTS assurance à la Défense, puis j'ai enchainé... Serveur à Malte, téléopérateur à Barcelone, chaufffeur Uber à Paris, vendeur d'aspirateur en Haute Savoie, Epicier à Houat... Ma vie c'est *"Attrappe moi si tu peux"* avec des taff pas ouf mdr ^^' J'espère donc pouvoir combiner ma passion du voyage avec le code style digital nomad inshallah !
